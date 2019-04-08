@@ -13,9 +13,9 @@ Chicago, IL
 Tentative Schedule
 ------------------
 
-We will meet at the Railway Exchange Building at 8am on April 9th for
+We will meet at the Railway Exchange Building (Room 350) at 8am on April 9th for
 coffee and snacks before beginning our meeting at 8:30 am. Our plan is
-to meet from 830-5pm both days, with a reception at 6pm on day 1.
+to meet from 830-5pm both days, with a reception at 6pm on day 1 at the [Plymouth Rooftop](http://plymouthgrill.com/rooftop-bar-grill/).
 
 ### April 9th
 
